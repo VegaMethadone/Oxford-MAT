@@ -1,4 +1,4 @@
-#What is the MAT?#
+# What is the MAT? #
 
 If you are applying for one of the following courses you will be required to sit the MAT: 
 
